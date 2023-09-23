@@ -7,4 +7,4 @@
 
 
 
-![](photo_2023-09-23 18.30.46.jpeg)
+![photo_2023-09-23 18 30 46](https://github.com/sashabobr007/hak_22.09/assets/48097431/c06e06dc-508d-4c08-927c-4f4d384ec1b7)
